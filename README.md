@@ -1,0 +1,6 @@
+- 👋 Hello, I’m @TheBestHackerInTheWorld
+- 👀 I’m interested in Hacking
+- 🌱 I’m currently learning Italy and more hacking 
+- 💞️ I’m looking to collaborate on something private
+- 📫 You cant reach me if i dont want you to
+- 🏴‍☠️ I will not tell you where im from
